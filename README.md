@@ -6,4 +6,4 @@ En algunas partes en internet hay información sobre estos problemas, sin embarg
 
 Dejando lo anterior en claro, no es mi intención que solo se copie y pegue mis resultados, sino que se tomen estos como un punto de apoyo, revisando mis respuestas cuidadosamente, ya que no se garantiza que la nota de dichos trabajos fue la máxima.
 
-**¡Muchos éxitos!
+**¡Muchos éxitos!**
